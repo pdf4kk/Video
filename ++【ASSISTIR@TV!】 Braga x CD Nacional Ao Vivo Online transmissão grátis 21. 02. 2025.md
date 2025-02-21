@@ -1,3 +1,8 @@
+📺📱👉◄◄🔴 https://tinyurl.com/2fcbrypp
+
+📺📱👉◄◄🔴 https://tinyurl.com/2fcbrypp
+
+
 Braga x Nacional: onde assistir ao vivo a partida pela Liga Portugal
 Veja horário, transmissão e expectativas para o confronto
 
