@@ -1,4 +1,14 @@
-Lille – Monaco : à quelle heure et sur quelle chaîne voir les matchs en direct ?
-Profiter de l'offre
-L’AS Monaco se déplace à Lille à l’occasion de la vingt-troisième journée de championnat. Les Rouge et Blanc vont tout faire pour monter sur le podium. Découvrez ici à quelle heure et sur quelle chaîne suivre la diffusion du match Lille – Monaco en direct.
-À l’heure actuelle, le LOSC occupe la cinquième place du classement. Jusqu’à présent, les Dogues ont remporté dix victoires et concédé huit nuls, ce qui leur permet d’afficher trente-huit points au compteur. Pour le moment, les hommes de Bruno Génésio ont deux points de retard sur leur adversaire du jour. L’enjeu est donc fort, car les Dogues ont l’occasion d’intégrer le top 3 à l’issue de la rencontre. En face, Monaco est quatrième avec quarante points, douze succès et quatre nuls. Les Monégasques signent la troisième meilleure performance offensive avec quarante-quatre buts inscrits depuis le début de la saison 2024-2025. Après avoir été éliminée de l’UEFA Champions League par le Benfica Lisbonne (4-3), l’équipe dirigée par Adi Hütter doit renouer avec la victoire pour se rapprocher du trio de tête. Pour mémoire, la dernière confrontation entre les deux clubs s’est soldée par un nul (0-0). Dans ces lignes, on vous dit à quelle heure et sur quelle chaîne regarder le match Lille – Monaco, en direct ce samedi après-midi
+L1LOSC - Monaco en streaming : A quelle heure et sur quelle chaîne TV voir le match en direct ?
+Greg CottretPublié le 22/02/2025 à 06:30
+
+Lille et Monaco s'affrontent ce samedi pour le compte de la 23e journée de Ligue 1. A quelle heure et sur quelle chaîne est diffusé le match en direct ? Voici toutes ce que vous devez retenir avant cette rencontre.
+
+**Lille vs Monaco : Duel de prétendants pour l’Europe**
+
+C'est un choc qui s'annonce explosif et décisif dans la course aux places européennes : Lille accueille Monaco au stade Pierre-Mauroy ce samedi 22 février 2025 à 17h00 pour le compte de la 23e journée de Ligue 1. Deux équipes séparées par seulement deux points au classement, avec Monaco en 4e position à 40 points et Lille juste derrière, à la 5e place avec 38 points. Un duel où chaque détail pourrait faire la différence.
+
+Lille arrive avec des performances récentes convaincantes, totalisant trois victoires sur leurs cinq derniers matchs. Les Dogues ont impressionné en attaque avec 13 buts marqués, tout en restant solides en défense avec seulement 4 buts encaissés. Cependant, l’infirmerie lilloise est pleine, avec des absences majeures telles que T. Santos, E. Zhegrova, M. Bakker, S. Umtiti et E. Mbappé qui pourraient peser lourd dans la balance.
+
+Du côté de l’AS Monaco, les récents résultats sont plus mitigés avec deux victoires, deux défaites et un match nul. Malgré 15 buts inscrits, les Monégasques ont semblé fragiles derrière, concédant 11 buts sur cette même période. L’équipe de la Principauté devra également faire face à plusieurs forfaits importants, y compris ceux de S. Magassa, J. Teze, A. Golovin et F. Balogun.
+
+En matière de confrontations directes, Lille a un léger ascendant, avec deux victoires lors des cinq derniers affrontements, contre une seule pour Monaco et deux matches nuls. Autant dire que la rencontre de samedi s'annonce comme un véritable bras de fer entre deux prétendants sérieux à l'Europe.
