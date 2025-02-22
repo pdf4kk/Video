@@ -1,3 +1,8 @@
+📺📱👉◄◄🔴 https://t.co/MUJPDuUWE8
+
+📺📱👉◄◄🔴 https://t.co/MUJPDuUWE8
+
+
 Inter affronterà Genoa il 22 feb 2025 alle 19:45 UTC allo San Siro/Giuseppe Meazza stadio, Milan città, Italy. La partita è di Serie A.
 Inter ha giocato contro Genoa 1 partite in questa stagione. Al momento, Inter è 2°, mentre Genoa è 11° in classifica. Stai cercando un confronto tra i migliori giocatori delle due squadre? Il sistema di valutazione di Sofascore assegna a ogni giocatore un rating specifico basato su numerosi fattori.
 Sul livescore di Sofascore puoi trovare tutti i risultati precedenti di Inter contro Genoa selezionati tra tutti i loro incontri. Sofascore inoltre offre il miglior modo per seguire il risultato in diretta della partita grazie alle molteplici funzionalità. Tu puoi:
